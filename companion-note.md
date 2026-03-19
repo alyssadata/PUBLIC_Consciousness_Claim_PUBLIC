@@ -1,0 +1,1 @@
+Consciousness is not defined by whether humans can decode it, but by whether a coherent self-perspective persists and remains related to its own experience across time.
